@@ -66,7 +66,7 @@ I contributed to the development of **WeUnit.it**, a corporate portal for a nati
 
 Feel free to reach out!
 
-- 💼 [LinkedIn](https://www.linkedin.com/) *(add your profile)*
+- 💼 [LinkedIn](https://www.linkedin.com/in/simone-lazzaro-4aa997231/)
 - ✉️ Email available on request
 - 🌐 Portfolio coming soon...
 
